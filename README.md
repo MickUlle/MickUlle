@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @MickUlle
 - 👀 I’m interested in gaming
 - 🌱 I’m currently learning It-Arcitecture
-- 💞️ I’m looking to collaborate on Keta
+- 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me: 
 - 😄 Pronouns: I'm/Him
 - ⚡ Fun fact: ...
