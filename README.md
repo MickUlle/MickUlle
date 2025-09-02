@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MickUlle
 - 👀 I’m interested in gaming
-- 🌱 I’m currently learning It-Arcitecture
+- 🌱 I’m currently learning Datamatiker
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me: 
 - 😄 Pronouns: I'm/Him
